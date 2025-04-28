@@ -1,0 +1,1 @@
+# fit2002-week-2--organisational-structures-project-and-product-lifecycles-solved
